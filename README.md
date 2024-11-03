@@ -4,6 +4,8 @@
 
 ---
 
+[Программа:](https://github.com/zevaka174/EZ_FIX-FIX_TUBE/edit/main/hgfghdfghdfghdfh.png?raw=true)
+
 ## ✨ Наши плюсы:
 
 ### ✅ Простой запуск
