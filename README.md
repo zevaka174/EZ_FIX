@@ -4,7 +4,7 @@
 
 ---
 
-[Программа:](https://github.com/zevaka174/EZ_FIX-FIX_TUBE/edit/main/hgfghdfghdfghdfh.png?raw=true)
+[Программа:](https://github.com/zevaka174/EZ_FIX-FIX_TUBE/blob/main/hgfghdfghdfghdfh.PNG)
 
 ## ✨ Наши плюсы:
 
