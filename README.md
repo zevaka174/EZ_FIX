@@ -4,7 +4,7 @@
 
 ---
 
-![Описание изображения](https://github.com/zevaka174/EZ_FIX-FIX_TUBE/blob/main/hgfghdfghdfghdfh.PNG)
+![крутаякартинка](https://cdn.discordapp.com/attachments/1297577463894773811/1302602075594686534/hgfghdfghdfghdfh.PNG?ex=6728b637&is=672764b7&hm=06e6c14a78e34ffbc6c5818d2ee82dc67aa1a11290bda4aaadceb15089706041&)
 
 ## ✨ Наши плюсы:
 
